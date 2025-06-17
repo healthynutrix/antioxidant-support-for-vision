@@ -69,4 +69,4 @@ While supplements can help, lifestyle also plays a key role. To support your vis
 
 ## Final Thoughts
 
-Visual health is deeply connected to antioxidant protection. By feeding your body the nutrients it needs to protect and restore delicate eye tissues, you can support clear, comfortable vision at every stage of life. Whether through diet, lifestyle, or supplements like [iGenics™](https://igenicsnow.com), antioxidant support offers a powerful way to keep your eyes healthy from the inside out.
+Visual health is deeply connected to antioxidant protection. By feeding your body the nutrients it needs to protect and restore delicate eye tissues, you can support clear, comfortable vision at every stage of life. Whether through diet, lifestyle, or supplements like iGenics, antioxidant support offers a powerful way to keep your eyes healthy from the inside out.
